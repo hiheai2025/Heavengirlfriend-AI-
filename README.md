@@ -4,11 +4,11 @@ In today’s digital world, finding a virtual companion has never been easier, t
 
 ## [FREE trial Heaven Girlfriend AI at here](https://hiheai.com/heaven-girlfriend/)
 
+![heaven girlfriend ai review](https://github.com/user-attachments/assets/266687e1-fb51-4cf6-942c-77ddb9ceedb3)
+
 ## **Key Features of Heaven Girlfriend AI**
 
 1. **Customizable Personalities:** Tailor your AI companion’s personality to match your preferences. Whether you want someone adventurous or supportive, customization is key.
-
-![heaven girlfriend ai review](https://github.com/user-attachments/assets/266687e1-fb51-4cf6-942c-77ddb9ceedb3)
 
 2. **Natural Conversations:** Using advanced AI algorithms, the app ensures smooth, engaging dialogues that feel far more human-like than typical chatbots.
 
